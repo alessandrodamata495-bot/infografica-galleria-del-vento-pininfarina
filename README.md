@@ -1,0 +1,1 @@
+# infografica-galleria-del-vento-pininfarina
